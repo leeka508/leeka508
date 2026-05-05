@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @leeka508
+- 👋 Hi, I’m Kait
 - 👀 I’m interested in game art.
 - 🌱 I’m currently learning 3D animation.
 - 💞️ I’m looking to collaborate on indie and major game projects.
